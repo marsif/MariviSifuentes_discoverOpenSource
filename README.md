@@ -7,3 +7,5 @@ Since Delilah sourced most of her user-testers through her network, their backgr
 
 My response to the prompt is below:
 Delilah can make her app more inclusive by reaching out to other communities online, or by making it public so others can have access to it and share it to others. 
+
+That's an interesting idea!
